@@ -1,7 +1,6 @@
 # 含羞草实验室一天一次忘忧草隐藏研究所
 们幼小的心中谁父亲离家最远赚钱也最老
-
-👉/观/看/入/口👉http://www.baidu.com/link?url=aFQjCpKLyjmMkJDTPPmIM46mcs0b-moe8w2Xe6-iLGqpxJgfWTUHTnAr0yehHs6i&wd
+<a href="https://github.com/getmal/fdwwt/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 含羞草实验室一天一次忘忧草隐藏研究所	55、你是我宁愿受三年牢狱之灾都要得到的人啊。
 	十六、逢着瞎子不谈光，逢着癞子不谈疮：说话是一门艺术，与他人讲话要讲究技巧。说人不说短，打人不打脸。与人交谈也要有情商，不要戳人痛处。有时候你所谓的玩笑，不仅不好笑，还伤人。
